@@ -1,4 +1,4 @@
 # grow.lk
-within next week i will finalized
+within next week i will finalized.
 
 
